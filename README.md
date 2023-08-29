@@ -15,3 +15,7 @@ The game has a campaign that includes 10 acts and a very extensive endgame with 
 
 ## 4. Another Free Play Game Links
 Here are another free games you can [play](https://freegames.org/)
+
+## 5. Look to picture and decide which video game is best for you?
+![Game](https://hips.hearstapps.com/hmg-prod/images/most-popular-video-games-of-2022-1642612227.png)
+
