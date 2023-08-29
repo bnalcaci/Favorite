@@ -13,3 +13,5 @@ The game has many characters and different abilities and skills to utilize.
 ## 3. Tons of Content
 The game has a campaign that includes 10 acts and a very extensive endgame with countless of hours of content to play through!
 
+## 4. Another Free Play Game Links
+Here are another free games you can [play](https://freegames.org/)
